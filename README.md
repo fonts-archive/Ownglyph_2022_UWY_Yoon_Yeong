@@ -1,6 +1,6 @@
 # 온글잎 의청수 윤영체
 
-[배포처 바로가기](https://copyright.keris.or.kr/wft/fntDwnldView?fntGrpId=GFT202302140000000000005)
+[배포처 바로가기](https://www.ownglyph.com/trial/7b1cd10e-bf1c-4c68-bfa9-872a92f1a78a)
 
 &nbsp;
 
